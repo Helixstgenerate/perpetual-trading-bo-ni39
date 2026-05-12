@@ -1,4 +1,4 @@
-# 
+# Get the ultimate perpetual trading bot with vip perpetual trading bot Plugin | backtesting + cross-margin. Featuring backtesting and cross-margin, it's the best choice for
 
 
 
